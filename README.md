@@ -14,6 +14,6 @@ HARGA SANGAT NEGOTIABLE tapi aku mohon jangan AFGAN (nego sadis) ya, NEPIS sanga
 
 Silahkan eksploitasi aku sesuka hati
 
-Jika tidak persaya saya bersedia selfi di ktp dan tanda tangan surat pernyataan sebagai bukti saya tidak menggelapkan uang client (tapi sepertinya ini sudah berlebihan)
+Jika tidak percaya, saya bersedia selfi di ktp dan tanda tangan surat pernyataan sebagai bukti saya tidak menggelapkan uang client (tapi sepertinya ini sudah berlebihan)
 
 MOTTO saya adalah "Pembeli adalah DEWA aku hanyalah BUDAK. Jiwaku milikmu sampai proyeknya selesai. Silahkan Pakai aku sesukamu TUAN"
